@@ -1,1 +1,1 @@
-# Shiying-Wu-GLA-Shiying-Wu-GLA.github.io
+# Shiying-Wu-GLA.github.io
